@@ -1,0 +1,2 @@
+# jumatateDeProiect
+Proiect (half)
